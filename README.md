@@ -1,2 +1,2 @@
 ## read prns page
-<img width="498" height="189" alt="coil-coil-phighting" src="https://github.com/user-attachments/assets/d56b82fd-a7b7-43a9-9683-fcb7eba80580" />
+<img width="341" height="192" alt="phighting-baby" src="https://github.com/user-attachments/assets/d2c9f8c9-072c-42b2-89a3-d82d985fe195" />
